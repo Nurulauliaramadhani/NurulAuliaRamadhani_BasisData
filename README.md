@@ -1,0 +1,1 @@
+# NurulAuliaRamadhani_BasisData
